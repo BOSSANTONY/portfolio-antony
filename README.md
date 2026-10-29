@@ -59,7 +59,7 @@ https://github.com/BOSSANTONY/meteosama
 
 ## 📬 Contact
 
-Email : mantonych7@gmail.com
+Email : mantonych17@gmail.com
 
 GitHub :
 https://github.com/BOSSANTONY
